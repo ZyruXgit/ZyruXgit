@@ -1,7 +1,9 @@
-| 🎨 UI/UX & Graphic Designer |
+👋 Hi there! I'm Shoeb Khan,
 
-Crafting digital experiences that blend form and function 🌟
+🎨 UI/UX & Graphic Designer,
+
+Passionate about design and eager to learn and share creative insights ✨
 
 Exploring the art of design one pixel at a time 🖌️ 
 
-Passionate about design and eager to learn and share creative insights ✨
+Let's collaborate and create! 🚀
